@@ -2,7 +2,8 @@
 
 - Informações sobre o Recurso de Reconhecimento.
 - ENADE BSI
+- TCC. ALunos sem compromisso.
 - Definir início da atualização do PPC
 - Ingressantes  
 - Retorno Juliana  
-- TCC  
+  
