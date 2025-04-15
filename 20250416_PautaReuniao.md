@@ -2,7 +2,7 @@
 
 - Informações sobre o Recurso de Reconhecimento.
 - Informações do bolsista NAPNE Fabrício Arantes para aluno Gabriel Henrique.
-- ENADE BSI.
+- ENADE BSI: Conscientização dos alunos do 7º semestre.
 - Retorno profa. Juliana.  
 - Início da atualização do PPC. Quando?
 - TCC. Discussão NDE sobre alteração proposta pela biblioteca.
