@@ -6,6 +6,7 @@
 - Retorno profa. Juliana.  
 - Início da atualização do PPC. Quando?
 - TCC. Discussão NDE sobre alteração proposta pela biblioteca.
+- Considerações pedagógicas do prof. Ubiratan.
 
 
 
