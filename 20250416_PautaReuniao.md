@@ -1,6 +1,7 @@
 <h3>Reunião 16/04/2025</h3>
 
 - Informações sobre o Recurso de Reconhecimento.
+- Informações do bolsista NAPNE Fabrício Arantes para aluno Gabriel Henrique.
 - ENADE BSI.
 - Retorno profa. Juliana.  
 - Início da atualização do PPC. Quando?
