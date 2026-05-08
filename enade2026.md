@@ -2,7 +2,7 @@
 André Monteiro Triantafyllou - (17) 99248-8331 (17) 99211-6424 andre.triantafyllou@aluno.ifsp.edu.br  - entrei  
 Daniela Caroline Santiago - (17) 98134-5597 (17) 3421-6921 daniela.santiago@aluno.ifsp.edu.br  - entrei 
 Gabriel Henrique de Oliveira Vieira - (17) 99615-0447   - entrei  
-Paulo Junior Walbueno dos Santos - (17) 99648-4263  entrei  
+~~Paulo Junior Walbueno dos Santos - (17) 99648-4263  entrei~~ 
 ~~Yasmim Bispo Alves - (17) 99794-2930  entrei  Não vai pro ENADE~~
 
 Verificar os alunos que entraram por transferência  
