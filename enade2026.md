@@ -1,3 +1,10 @@
+### Verificar
+Izadora  
+kauane, verificar com o franklin se ela passa  
+Paulo, voltar  
+scarlet, aprovar o tcc  
+
+
 ### Alunos em situação de atenção
 André Monteiro Triantafyllou - (17) 99248-8331 (17) 99211-6424 andre.triantafyllou@aluno.ifsp.edu.br  - não cola grau    
  
